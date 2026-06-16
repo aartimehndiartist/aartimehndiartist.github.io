@@ -1,1 +1,0 @@
-# aartimehndiartist.github.io
